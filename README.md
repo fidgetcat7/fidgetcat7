@@ -1,4 +1,4 @@
-## Hi I'm Kanjana 👋
+Hi! I'm Kanjana 👋
 
 I'm a passionate Data Analyst with a keen interest in analyst, business, marketing skill. I enjoy exploring new things and learning about different cultures.
 
